@@ -2,7 +2,7 @@
 
 ![Travel Website](https://i.ibb.co/wrGZhPP/YT-Thumbnails-5.png)
 
-## Hilinks is Seamlessly Connecting Ideas
+## Hilinks | Seamlessly Connecting Ideas
 
 ### Overview
 
